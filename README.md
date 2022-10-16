@@ -1,0 +1,4 @@
+- 👋 Hi, I'm @Depite
+- 👀 I am interested in IT
+- 🌱 I'm a newbie
+- 💞️ I seek to understand when a failure is established
